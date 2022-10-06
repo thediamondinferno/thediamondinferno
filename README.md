@@ -17,7 +17,7 @@
   👉 UNITY - BLENDER - FL STUDIO
   
 
-🎓 I’m currently a 2nd YEAR STUDENT 🎓
+🎓 I’m currently a 3rd YEAR STUDENT 🎓
 
 🤝 I’m collaborating on SOLANA SUMMER CAMP PROJECT 🤝
 
